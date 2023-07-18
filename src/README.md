@@ -12,5 +12,4 @@ We believe that everyone has the potential to create positive change in their li
 
 So let's get started on building lasting habits!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
