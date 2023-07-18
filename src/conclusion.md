@@ -1,8 +1,5 @@
 # Conclusion
 
-Conclusion
-==========
-
 Building lasting habits is a challenging but rewarding process that can have significant positive effects on one's life. By understanding the triggers and rewards of your habits, identifying negative habits and developing strategies for overcoming them, mapping out your ideal habits, and taking consistent action towards building positive behaviors, individuals can establish lasting change in their lives. In this final chapter, we will explore the importance of building lasting habits, celebrating your successes, and maintaining your positive habits for the long-term.
 
 The Importance of Building Lasting Habits
