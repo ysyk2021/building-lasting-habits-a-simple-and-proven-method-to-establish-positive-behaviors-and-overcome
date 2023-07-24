@@ -34,10 +34,3 @@ Maintaining motivation is key to building lasting habits. Here are some tips for
 * **Reward yourself:** Set up a system of rewards for when you achieve your goals. This can be as simple as treating yourself to a favorite snack or activity.
 * **Stay positive:** Focus on the positive aspects of your habit and avoid dwelling on setbacks or failures.
 * **Stay accountable:** Continue to hold yourself accountable, even when progress is slow or setbacks occur.
-
-Key Takeaways
--------------
-
-* Common obstacles to building lasting habits include lack of motivation, lack of time, difficulty with behavior change, and fear of failure.
-* Strategies for overcoming obstacles include starting small, making a plan, finding an accountability partner, celebrating small successes, and practicing self-compassion.
-* Tips for maintaining motivation include visualizing success, tracking progress, rewarding yourself, staying positive, and staying accountable.

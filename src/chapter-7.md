@@ -31,10 +31,3 @@ When it comes to establishing lasting habits, there is some debate over whether 
 Working on multiple habits simultaneously involves establishing several new habits at once. This approach can be more efficient in terms of time and resources, but may also increase the risk of feeling overwhelmed or burning out.
 
 Ultimately, the best approach to establishing lasting habits will depend on your individual needs and preferences. If you tend to feel overwhelmed easily, or if you are new to habit formation, tackling one habit at a time may be the best approach. On the other hand, if you are comfortable with multitasking and have experience with habit formation, working on multiple habits simultaneously may be more feasible.
-
-Key Takeaways
--------------
-
-* Prioritizing our habits helps us avoid feeling overwhelmed and ensures that we are focusing our energy on the most important behaviors.
-* Setting SMART goals helps us clarify our intentions and establish a clear plan of action.
-* The best approach to establishing lasting habits will depend on your individual needs and preferences.

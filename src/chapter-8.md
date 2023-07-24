@@ -46,14 +46,3 @@ Rewarding yourself for progress is important for staying motivated and maintaini
 
 * **Choose meaningful rewards:** Choose rewards that are meaningful and enjoyable to you.
 * **Make them specific:** Make sure the reward is specific to your progress towards your habit.
-
-Key Takeaways
--------------
-
-* Creating a plan of action is crucial for building lasting habits.
-* Breaking down your habit into small steps makes it easier to accomplish and increases the likelihood of success.
-* Accountability and tracking progress are important for building lasting habits.
-* Consistency and persistence are key to building lasting habits.
-* Rewarding yourself for progress is important for staying motivated and maintaining momentum.
-
-

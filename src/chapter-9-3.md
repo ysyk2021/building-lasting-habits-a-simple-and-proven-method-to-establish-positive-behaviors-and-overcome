@@ -32,10 +32,3 @@ Celebrate Small Successes
 -------------------------
 
 Celebrating each small success along the way helps maintain motivation by providing a sense of accomplishment and progress. Recognize and celebrate each milestone you reach, no matter how small. This can help build confidence and motivation to continue working towards your long-term goals.
-
-Key Takeaways
--------------
-
-* Maintaining motivation is crucial for building lasting habits.
-* Tips for maintaining motivation include connecting with your why, tracking your progress, finding inspiration, using positive affirmations, visualizing success, and celebrating small successes.
-* By implementing these tips, you can maintain motivation and stay on track towards establishing positive behaviors that support your well-being and success.

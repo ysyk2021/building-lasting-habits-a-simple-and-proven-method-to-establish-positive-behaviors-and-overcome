@@ -25,10 +25,3 @@ Identifying the triggers that lead to negative habits and understanding their co
 Consequences can be short-term, such as feeling guilty or ashamed after engaging in a negative habit, or long-term, such as negatively impacting your health or relationships.
 
 By identifying your triggers and consequences, you can develop strategies for avoiding or managing triggers and weighing the potential consequences before engaging in negative habits.
-
-Key Takeaways
--------------
-
-* Habits and addictions are different, and it's important to differentiate between them when developing strategies for overcoming negative behaviors.
-* Negative habits often have deeper underlying causes, and understanding these root causes is crucial for breaking free from them.
-* Identifying triggers and consequences is important for developing strategies for avoiding or managing triggers and weighing the potential consequences before engaging in negative habits.

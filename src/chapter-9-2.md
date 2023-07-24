@@ -32,10 +32,3 @@ Stay Positive
 -------------
 
 Focusing on the positive aspects of your habit and avoiding dwelling on setbacks or failures can help you stay motivated and overcome obstacles. Maintaining a positive attitude helps you stay focused on your long-term goals and approach challenges with a growth mindset.
-
-Key Takeaways
--------------
-
-* Starting small, making a plan, finding an accountability partner, celebrating small successes, practicing self-compassion, and staying positive are all strategies for overcoming obstacles to building lasting habits.
-* Overcoming obstacles requires patience, persistence, and a willingness to adapt when challenges arise.
-* By implementing these strategies, you can overcome obstacles and establish positive behaviors that will support your well-being and success.

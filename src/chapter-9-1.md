@@ -38,9 +38,3 @@ Fear of failure can prevent us from even attempting to establish new habits, or 
 * **Reframe your mindset:** Reframe your mindset to view setbacks as learning experiences rather than failures. This can help you stay motivated and focused on your long-term goals.
 * **Celebrate small successes:** Celebrate each small success along the way. This helps build confidence and motivation to continue working towards your long-term goals.
 * **Practice self-compassion:** Be kind to yourself when setbacks occur. Recognize that building lasting habits takes time and effort, and that setbacks are a natural part of the process.
-
-Key Takeaways
--------------
-
-* Lack of motivation, lack of time, difficulty with behavior change, and fear of failure are common obstacles to building lasting habits.
-* Strategies for overcoming these obstacles include visualizing success, finding inspiration, prioritizing your habit, multi-tasking, eliminating distractions, starting small, practicing consistency, seeking support, reframing your mindset, celebrating small successes, and practicing self-compassion.
