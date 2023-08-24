@@ -1,5 +1,3 @@
-Why It's Challenging to Build Lasting Habits
-==========================================================
 
 Building lasting habits is a challenging process that requires time, effort, and dedication. Despite our best intentions, many of us struggle to establish new, positive behaviors and overcome negative ones. In this chapter, we will explore some of the reasons why it's challenging to build lasting habits.
 

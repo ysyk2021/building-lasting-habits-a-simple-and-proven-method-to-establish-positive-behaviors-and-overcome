@@ -1,4 +1,3 @@
-# Breaking Down Your Habit into Small Steps
 
 One of the most effective ways to build lasting habits is by breaking them down into small, manageable steps. By taking small actions consistently, you can overcome inertia, build momentum, and make progress towards your habit goals. In this chapter, we'll explore the process of breaking down your habits into smaller steps.
 

@@ -1,4 +1,3 @@
-# Prioritizing Your Habits
 
 In our quest to build lasting habits, it's essential to prioritize the habits we want to develop. Prioritization helps us focus our time and energy on the habits that will have the greatest impact on our lives. This chapter will guide you through the process of identifying and prioritizing your habits effectively.
 

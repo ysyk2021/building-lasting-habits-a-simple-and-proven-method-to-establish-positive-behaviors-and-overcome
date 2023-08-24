@@ -1,5 +1,3 @@
-Celebrating Your Successes
-======================================
 
 Building lasting habits is a challenging process that requires time, effort, and dedication. In this book, we have explored different strategies and tools for establishing positive behaviors and overcoming negative ones. However, it's essential to celebrate your successes along the way towards building lasting habits.
 

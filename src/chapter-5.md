@@ -1,5 +1,3 @@
-Chapter 3: Understanding the Science of Habit Formation
-=======================================================
 
 Understanding the science of habit formation is critical for building lasting habits. Habits are formed through a process that involves cues, routines, and rewards, and is influenced by factors such as dopamine and repetition. In this chapter, we will explore the science behind habit formation.
 

@@ -1,4 +1,3 @@
-# Understanding the Triggers and Rewards of Your Habits
 
 To effectively build lasting habits, it is essential to understand the triggers that prompt your habits and the rewards they provide. In this chapter, we will explore how triggers and rewards influence our habits and how we can leverage this understanding to establish positive behaviors and overcome negative ones.
 

@@ -1,5 +1,3 @@
-Chapter 6: Overcoming Obstacles
-===============================
 
 Building lasting habits can be challenging, and it's common to encounter obstacles along the way. In this chapter, we will explore some of the common obstacles to building lasting habits and provide strategies for overcoming them.
 

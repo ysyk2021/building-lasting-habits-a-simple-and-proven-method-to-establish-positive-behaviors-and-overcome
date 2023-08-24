@@ -1,5 +1,3 @@
-Rewarding Yourself for Progress
-==================================================================================
 
 Rewarding yourself for progress is an effective technique for building lasting habits. By acknowledging and celebrating small wins along the way, individuals can maintain motivation and momentum towards achieving their goals. In this chapter, we will explore strategies for rewarding yourself for progress.
 

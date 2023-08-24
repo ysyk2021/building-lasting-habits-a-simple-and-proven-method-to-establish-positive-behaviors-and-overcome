@@ -1,5 +1,3 @@
-Tips for Maintaining Motivation
-================================================================
 
 Maintaining motivation is crucial for building lasting habits. It can be challenging to stay motivated when progress is slow or setbacks occur. In this chapter, we will explore tips for maintaining motivation and staying on track towards your goals.
 

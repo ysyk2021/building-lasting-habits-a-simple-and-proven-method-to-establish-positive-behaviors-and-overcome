@@ -1,4 +1,3 @@
-# Finding Support from Others
 
 In this chapter, we will explore the importance of finding support from others when it comes to building lasting habits. Having a strong support system can greatly increase your chances of success by providing encouragement, guidance, and accountability. By seeking support from those around you, you can overcome obstacles, stay motivated, and establish positive behaviors while overcoming negative ones.
 

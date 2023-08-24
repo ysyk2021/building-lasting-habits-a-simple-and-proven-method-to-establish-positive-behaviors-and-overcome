@@ -1,5 +1,3 @@
-Chapter 9: Sustaining Positive Habits
-=====================================
 
 Sustaining positive habits is essential for building lasting positive behaviors and overcoming negative ones. In this chapter, we will explore tips and strategies for maintaining motivation, reinforcing positive habits, and building positive habits into your lifestyle.
 

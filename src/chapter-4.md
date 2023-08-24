@@ -1,5 +1,3 @@
-Chapter 2: Mapping Out Your Ideal Habits
-========================================
 
 Mapping out your ideal habits is an important step in building lasting habits. By identifying positive habits you want to develop, clarifying the benefits of positive habits, and visualizing your ideal future self, you can establish a sense of purpose and direction that can guide your habit formation efforts. In this chapter, we will explore strategies for mapping out your ideal habits.
 

@@ -1,4 +1,3 @@
-# Setting a Clear Goal for Overcoming the Habit
 
 In this chapter, we will discuss the importance of setting a clear goal when it comes to overcoming a habit. Goals provide us with direction, motivation, and a sense of purpose. By establishing a specific and achievable goal, you can effectively work towards breaking free from negative habits and cultivating positive behaviors.
 

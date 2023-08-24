@@ -1,5 +1,3 @@
-Chapter 7: Understanding Negative Habits
-========================================
 
 Before we can overcome negative habits, it's important to understand what they are and how they form. In this chapter, we will explore the nature of negative habits and the reasons why they can be so difficult to break.
 

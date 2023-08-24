@@ -1,5 +1,3 @@
-Chapter 4: Choosing the Right Habits to Focus On
-================================================
 
 Establishing positive habits and overcoming negative ones can be a daunting task, especially if we try to tackle too much at once. In this chapter, we will explore the importance of prioritizing our habits and choosing the right ones to focus on.
 

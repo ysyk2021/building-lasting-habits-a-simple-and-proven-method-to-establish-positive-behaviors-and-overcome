@@ -1,5 +1,3 @@
-Part I: Understanding Your Habits
-=================================
 
 Understanding your habits is an essential first step towards building lasting positive behaviors and overcoming negative ones. In this part, we will explore different aspects of understanding your habits to help you identify patterns, triggers, and roadblocks that may be hindering your progress towards building lasting habits.
 

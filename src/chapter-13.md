@@ -1,5 +1,3 @@
-Part IV: Sustaining Positive Habits
-===================================
 
 Sustaining positive habits is essential for building lasting positive behaviors and overcoming negative ones. In this section, we will explore different strategies and tools for maintaining motivation, reinforcing positive habits, and building positive habits into your lifestyle.
 

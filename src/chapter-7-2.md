@@ -1,4 +1,3 @@
-# Setting SMART Goals for Your Habits
 
 In order to build lasting habits effectively, it's important to set clear and achievable goals. One popular framework for goal setting is the SMART method. This chapter will guide you through the process of setting SMART goals specifically tailored to your habits.
 

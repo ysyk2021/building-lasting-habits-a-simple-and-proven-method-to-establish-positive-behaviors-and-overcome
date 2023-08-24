@@ -1,4 +1,3 @@
-# Tackling One Habit at a Time versus Simultaneously
 
 When it comes to building habits, it's common to have multiple behaviors we want to establish or change. The question then arises: should we focus on tackling one habit at a time or try to work on multiple habits simultaneously? In this chapter, we'll explore the benefits and considerations of both approaches.
 

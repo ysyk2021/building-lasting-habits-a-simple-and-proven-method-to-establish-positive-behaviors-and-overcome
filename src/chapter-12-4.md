@@ -1,4 +1,3 @@
-# Managing Cravings and Urges
 
 In this chapter, we will discuss effective strategies for managing cravings and urges when it comes to building lasting habits. Cravings and urges are powerful sensations that can derail your progress and lead to the persistence of negative behaviors. By understanding the nature of cravings and implementing practical techniques, you can successfully navigate through them, maintain self-control, and establish positive behaviors while overcoming negative ones.
 

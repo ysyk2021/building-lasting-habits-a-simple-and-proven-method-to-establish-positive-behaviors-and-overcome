@@ -1,4 +1,3 @@
-# Identifying Your Triggers and Consequences
 
 In this chapter, we will explore the importance of understanding your triggers and consequences when it comes to building lasting habits. By identifying these key elements, you will gain valuable insights into your behaviors and be better equipped to establish positive habits while overcoming negative ones.
 

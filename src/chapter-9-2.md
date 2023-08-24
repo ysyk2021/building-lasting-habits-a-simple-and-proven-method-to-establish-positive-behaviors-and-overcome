@@ -1,5 +1,3 @@
-Strategies for Overcoming Obstacles
-====================================================================
 
 Building lasting habits can be challenging, and it's common to encounter obstacles along the way. In this chapter, we will explore strategies for overcoming obstacles to building lasting habits.
 

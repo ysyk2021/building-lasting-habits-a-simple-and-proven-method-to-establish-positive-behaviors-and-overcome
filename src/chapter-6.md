@@ -1,5 +1,3 @@
-Part II: Building Lasting Habits
-================================
 
 In this section of the book, we will explore a simple and proven method for building lasting habits. By following these strategies, you can establish positive behaviors and overcome negative ones, unlocking your full potential and achieving success in all areas of your life.
 
@@ -29,5 +27,4 @@ Chapter 7: Implementing a Proven Method for Building Lasting Habits
 In this chapter, we will provide a step-by-step guide for implementing a proven method for building lasting habits. By following these strategies, you can establish positive behaviors and overcome negative ones, unlocking your full potential and achieving success in all areas of your life.
 
 With dedication and persistence, you can build lasting habits that support your goals and well-being. By following these strategies and implementing a proven method for habit formation, you can transform your life and achieve success in all areas.
-
 

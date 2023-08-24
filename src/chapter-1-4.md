@@ -1,5 +1,3 @@
-Benefits of Building Lasting Habits
-=================================================
 
 Building lasting habits is a powerful way to create positive change in one's life. By establishing new, positive behaviors and overcoming negative ones, individuals can improve their physical health, mental well-being, productivity, and relationships. In this chapter, we will explore the benefits of building lasting habits.
 

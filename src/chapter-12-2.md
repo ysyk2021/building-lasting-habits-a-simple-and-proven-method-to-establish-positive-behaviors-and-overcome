@@ -1,5 +1,3 @@
-Developing an Action Plan for Overcoming the Habit
-========================================================================================================
 
 Developing an action plan is an essential step towards overcoming negative habits and building lasting positive behaviors. In this chapter, we will explore strategies for developing an action plan for overcoming negative habits.
 

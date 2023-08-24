@@ -1,5 +1,3 @@
-Visualizing Your Ideal Future Self
-============================================================================
 
 Mapping out your ideal habits and visualizing your ideal future self is an important step in building lasting habits. By creating a clear vision of who you want to be and what behaviors you want to exhibit, you can establish a sense of purpose and direction that can help guide your habit formation efforts. In this chapter, we will explore strategies for mapping out your ideal habits and visualizing your ideal future self.
 

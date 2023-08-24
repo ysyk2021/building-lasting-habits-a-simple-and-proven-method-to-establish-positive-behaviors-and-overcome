@@ -1,4 +1,3 @@
-# Types of Habits
 
 In our daily lives, we engage in a wide range of habits that shape our behavior and influence our outcomes. In this chapter, we will explore different types of habits and how they impact our lives.
 

@@ -1,4 +1,3 @@
-# The Habit Loop: Cue, Routine, Reward
 
 In order to effectively build lasting habits, it is essential to understand the habit loop—consisting of the cue, routine, and reward. This chapter will explore each component of the habit loop and how they influence our behaviors.
 

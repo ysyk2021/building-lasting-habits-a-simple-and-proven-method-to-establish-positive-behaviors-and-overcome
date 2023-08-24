@@ -1,4 +1,3 @@
-# Assessing Your Current Habits
 
 Before embarking on a journey to build lasting habits, it is crucial to assess your current habits and understand how they positively or negatively impact your life. In this chapter, we will explore effective strategies for evaluating your existing habits and gaining insights for personal growth.
 

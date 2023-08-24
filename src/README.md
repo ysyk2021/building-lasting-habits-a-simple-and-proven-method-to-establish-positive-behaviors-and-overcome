@@ -1,4 +1,4 @@
-# Introduction
+
 
 Building lasting habits is crucial for achieving success and improving overall well-being. Habits are the small actions that we repeat daily, often without conscious thought. They shape our lives, and can have a significant impact on our health, relationships, and career.
 

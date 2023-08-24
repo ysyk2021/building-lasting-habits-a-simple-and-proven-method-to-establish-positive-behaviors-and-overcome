@@ -1,5 +1,3 @@
-Part III: Overcoming Negative Habits
-====================================
 
 In this section of the book, we will focus on overcoming negative habits. Negative habits can have a significant impact on our well-being and success, but with the right strategies, it's possible to break free from them and establish positive behaviors.
 

@@ -1,4 +1,3 @@
-# How Long Does it Take to Form a Habit?
 
 In our pursuit of building lasting habits, one question that often arises is, "How long does it take to form a habit?" This chapter aims to provide insights into the timeline of habit formation and shed light on the factors influencing the process.
 

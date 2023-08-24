@@ -1,4 +1,3 @@
-# Differentiating Between Habits and Addictions
 
 Habits and addictions are two distinct concepts that often get conflated. While both involve repetitive behavior, understanding the fundamental differences between them is crucial for personal growth and development. In this chapter, we will explore how habits and addictions differ from each other and the impact they can have on our lives.
 

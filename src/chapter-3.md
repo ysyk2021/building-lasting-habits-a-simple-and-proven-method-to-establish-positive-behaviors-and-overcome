@@ -1,5 +1,3 @@
-Chapter 1: Identifying Your Current Habits
-==========================================
 
 Identifying your current habits is an essential first step towards building lasting positive behaviors and overcoming negative ones. In this chapter, we will explore different types of habits, how to assess your current habits, and understanding the triggers and rewards of your habits.
 

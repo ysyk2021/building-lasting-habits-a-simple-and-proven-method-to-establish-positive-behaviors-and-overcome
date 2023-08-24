@@ -1,4 +1,3 @@
-# What Are Habits? How Do They Form?
 
 Habits are ingrained patterns of behavior that we repeat regularly, often without conscious thought. In this chapter, we will explore the nature of habits and delve into the process through which they form.
 

@@ -1,5 +1,3 @@
-Chapter 8: The Process of Overcoming Negative Habits
-====================================================
 
 Overcoming negative habits is a challenging but rewarding process. By setting clear goals, developing an action plan, finding support from others, and managing cravings and urges, individuals can successfully replace negative habits with positive ones. In this chapter, we will explore strategies for overcoming negative habits.
 

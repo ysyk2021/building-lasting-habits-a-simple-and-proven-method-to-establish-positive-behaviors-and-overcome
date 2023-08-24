@@ -1,5 +1,3 @@
-Chapter 5: Techniques for Building Lasting Habits
-=================================================
 
 In this chapter, we will explore techniques for building lasting habits. By following these strategies, you can establish positive behaviors and overcome negative ones, unlocking your full potential and achieving success in all areas of your life.
 

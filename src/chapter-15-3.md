@@ -1,5 +1,3 @@
-Maintaining Your Positive Habits for the Long-Term
-==============================================================
 
 Establishing positive habits is a challenging process that requires time, effort, and dedication. However, sustaining positive habits for the long-term is even more challenging. In this book, we have explored different strategies and tools for establishing positive behaviors and overcoming negative ones. But how can individuals maintain these positive habits for the long-term?
 
