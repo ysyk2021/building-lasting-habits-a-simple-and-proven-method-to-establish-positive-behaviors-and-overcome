@@ -46,3 +46,4 @@
   - [Building Positive Habits into Your Lifestyle](chapter-14-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
